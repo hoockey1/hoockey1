@@ -1,4 +1,4 @@
-- 👋 Olá. sou @hoockey1 ou Sabrina
+- 👋 Olá,  sou @hoockey1 ou Sabrina
 - 👀 Estou interessada em MOBILE 
 - 🌱 Atualmente estou na faculdade de ciência da computação
 - 📫 Para entrar em contato pode me mandar um e-mail em: sabrinabarcelos2354@gmail.com
